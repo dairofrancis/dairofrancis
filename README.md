@@ -29,7 +29,7 @@ I'm a post-production professional with **9+ years of experience** across featur
 | **Abattoir Season 6** | TV Series · Mount Zion Film Productions (NG) | 2026 |
 | **Enoch** | Feature Film · Mount Zion & Solid Rock Foundation (UK) | 2023 |
 | **The Take** | Video Essay · ScreenPrism Media (USA) | 2026 |
-| **Right Now Media** | Biblical Teachings · TX, USA | 2022–24 |
+| **Right Now Media** | Biblical Teachings · (TX, USA) | 2022–24 |
 
 ---
 
@@ -42,5 +42,5 @@ I'm a post-production professional with **9+ years of experience** across featur
 
 ---
 
-*"I don't just cut footage. I shape how a story feels."*
-Open to freelance collaborations, senior editorial roles, and creative partnerships.
+*"I don't just cut footage. I shape how a story feels."* 
+Open to freelance collaborations, roles, and creative partnerships.
